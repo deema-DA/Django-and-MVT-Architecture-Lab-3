@@ -34,3 +34,6 @@
 ![image](https://github.com/user-attachments/assets/6786596b-f801-40da-a2ef-0650011360b6)
 
 # Task 7
+<img width="2160" height="1440" alt="‏‏لقطة الشاشة (195)" src="https://github.com/user-attachments/assets/ba81250c-0803-4f9f-b33d-0b86a18b1645" />
+<img width="2160" height="1440" alt="‏‏لقطة الشاشة (196)" src="https://github.com/user-attachments/assets/90b70a3d-1519-44e6-bae1-a8d9907da6bc" />
+
