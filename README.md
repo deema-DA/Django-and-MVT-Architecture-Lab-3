@@ -27,6 +27,8 @@
 # Task 6
 
 ![image](https://github.com/user-attachments/assets/f341e02d-1a1d-400d-8d49-7e89c24a6f79)
+<img width="1731" height="1045" alt="image" src="https://github.com/user-attachments/assets/9a92e094-7eb5-4df1-b5a1-89d5537ebd6e" />
+
 ![image](https://github.com/user-attachments/assets/9672b146-63aa-45fd-a055-b992bfb2034c)
 ![image](https://github.com/user-attachments/assets/b1c551c7-b6e5-4441-81bd-34cb652f8b1c)
 ![image](https://github.com/user-attachments/assets/6786596b-f801-40da-a2ef-0650011360b6)
